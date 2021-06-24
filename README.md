@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hacker-Lees
 - 👀 I’m interested in Chinese history
-- 🌱 I’m currently learning my coumputer master degree
+- 🌱 I’m currently learning my computer master degree
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
